@@ -1,2 +1,0 @@
-# fMichaleczek.github.io
-Blog
